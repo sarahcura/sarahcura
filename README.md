@@ -10,4 +10,4 @@ sarah.glinski@escola.pr.gov.br
 
 @sar4hhglisnski
 
-![3951](https://github.com/sarahcura/sarahcura/assets/145689095/a92f4e0b-2823-4bea-9c5c-869a72aa032c)
+
